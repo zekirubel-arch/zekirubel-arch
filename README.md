@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @zekirubel-arch
-- 👀 I’m interested in: sciense and tech
+- 👀 I’m interested in: science and technology
 - 🌱 I’m currently learning: html & css
-- 💞️ I’m looking to collaborate on: none
+- 💞️ I’m looking to collaborate on:zekirubelgizaw52@gmail.com
 - 📫 How to reach me:i dont know
 - 😄 Pronouns: scientist
 - ⚡ science fact: bananas are radio active
